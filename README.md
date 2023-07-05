@@ -7,6 +7,5 @@
 - 🤔 I’m looking for help with Web Development/IT Oppurtunities
 - 💬 Ask me about anything
 - 💬 How to reach me: Email @ lwz826@mocs.utc.edu
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am a college athlete.
 
